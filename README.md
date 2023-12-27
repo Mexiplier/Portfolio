@@ -1,0 +1,1 @@
+Aspiring IT professional actively pursuing CompTIA A+ certification. Passionate about technology and cybersecurity, I aim to contribute valuable skills in hardware, software, and troubleshooting. Committed to staying current with industry trends, I am eager to make meaningful contributions to the dynamic field of IT security.
